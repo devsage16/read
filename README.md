@@ -30,4 +30,4 @@ I'm always down to connect and learn from others, so don't hesitate to reach out
 My Links:
 
 Linkdn: https://www.linkedin.com/in/anand-sarma/
-E-MAIL: aanand
+E-MAIL: aanandsarma198@gmail.com
